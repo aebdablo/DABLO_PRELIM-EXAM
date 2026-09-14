@@ -483,7 +483,7 @@ Not simply four files.
 
 ### 🎥 PRELIM EXAM PRESENTATION
 
-[Recorded Video Presentation](https://drive.google.com/file/d/1-QEb1APNRv9ernFGqc7dBXvypo11DZvt/view?usp=sharing)
+[Recorded Video Presentation](https://drive.google.com/file/d/1_u-fsNqIUFtk0REh1jKNcNT2nHQBX2Ob/view?usp=sharing)
 
 ---
 
